@@ -1,2 +1,2 @@
-# Samarth07.github.io
+# Samarthh07.github.io
 just testing out things
